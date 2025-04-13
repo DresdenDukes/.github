@@ -4,7 +4,7 @@ here you can find baseball and softball related stuff created by Dresden Dukes m
 
 ## Imprint
 
-Baseball und Softball Dresden Dukes e.V.  
+Dresden Dukes e.V.  
 Amtsgericht Dresden VR 3625  
 info@dresdendukes.de  
 
